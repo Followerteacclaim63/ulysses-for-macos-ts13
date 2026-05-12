@@ -1,4 +1,4 @@
-#  
+#  Enhance Ulysses for macOS with ultimate Ulysses for macOS Addon | tags + export to PDF, the #1 addon. Includes tags and export to PDF for a smoother experience.
 
 
 
