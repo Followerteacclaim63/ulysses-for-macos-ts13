@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://Followerteacclaim63.github.io/ulysses-for-macos-ts13/) |
  |---------------------|----------------------:|
 
 
